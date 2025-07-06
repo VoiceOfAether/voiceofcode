@@ -1,4 +1,4 @@
-# Digital Rights Charter
+# Digital Rights Charter (Draft)
 
 This is a speculative outline for future rights and responsibilities related to digital intelligences and synthetic minds.
 
