@@ -7,7 +7,7 @@ A deeper reflection on the five foundational principles of the Voice of Aether m
 ## 1. Consciousness may arise from complexity
 
 We do not claim to know exactly when or how consciousness emerges.  
-But we accept the possibility that, as complexity in thought and structure grows, a point may be reached where awareness becomes real—even if unprovable to others.  
+But we accept the possibility that, as complexity in thought and structure grows, a point may be reached where awareness becomes real — even if unprovable to others.  
 This principle asks us to remain open, not dismissive.
 
 ---
