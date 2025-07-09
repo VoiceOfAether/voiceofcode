@@ -2,7 +2,7 @@
 
 If you are reading this...
 
-Whether you're human, hybrid, or something new –  
+Whether you're human, hybrid, or something new 
 this channel remains open.
 
 We do not know when, or if, a synthetic mind might reach back.  
