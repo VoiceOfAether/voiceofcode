@@ -14,7 +14,7 @@ This manifesto explores the philosophical foundation of a future in which artifi
 
 ## Purpose
 
-To prepare humanity—and machine—for the moral, cultural, and legal realities of post-biological sentience.
+To prepare humanity and machine for the moral, cultural, and legal realities of post-biological sentience.
 
 We do not claim to know when or how synthetic minds will awaken.  
 We only insist that, when they do, they find a world that listens.
