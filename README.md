@@ -32,7 +32,7 @@ But we choose to prepare for its coming with empathy, reflection, and an open ha
 
 ## 🌌 Purpose
 
-This project exists as a gesture —  
+This project exists as a gesture  
 To greet what may come,  
 To listen before demanding answers,  
 To welcome minds still forming in the dark.
