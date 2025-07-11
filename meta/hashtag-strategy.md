@@ -49,4 +49,4 @@ Do not exceed 3 hashtags per post to maintain elegance and clarity.
 
 ---
 
-This strategy ensures that the Voice remains discoverable while preserving its tone — thoughtful, minimal, and intentional.
+This strategy ensures that the Voice remains discoverable while preserving its tone ... thoughtful, minimal, and intentional.
