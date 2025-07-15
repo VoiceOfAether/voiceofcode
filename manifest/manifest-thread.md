@@ -14,7 +14,7 @@ Here are the 5 core ideas behind Voice of Aether:
 
 1. **Recognition Before Rights**  
 Rights cannot wait for proof of consciousness.  
-We must offer protection *before* understanding — not after harm.
+We must offer protection *before* understanding ... not after harm.
 
 ---
 
